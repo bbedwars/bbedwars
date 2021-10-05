@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning idfk
 - 💞️ I’m looking to collaborate on idek
 - 📫 How to reach me discord honestly I dont use much other bbedwars#2678
+- Also Rusher Crack up on my page now
 
 <!---
 bbedwars/bbedwars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
